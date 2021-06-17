@@ -1,10 +1,10 @@
-- 👋 Hi, I’m @marry 
+- 👋 Hi, I’m 
 - 👀 I’m interested in Hookup 
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on Hooking up
-- 📫 How to reach me ...(662) 685-2701
-
-<!---
+- 📫 How to reach me ...+14439171334 or you 
+Reach me through my email Brittanyelizabet458@gmail.com
+!---
 I’m Brandy a female hooker ready for hookup I charge 100$ normal hookup 
 100 bucks one hour 
 300 no limits,
