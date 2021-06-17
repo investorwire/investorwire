@@ -1,6 +1,4 @@
-- 👋 Hi, I’m 
-- 👀 I’m interested in Hookup 
-- 🌱 I’m currently learning ...
+- 👋 Hi, I’m Brittany Elizabeth 👀
 - 💞️ I’m looking to collaborate on Hooking up
 - 📫 How to reach me ...+14439171334 or you 
 Reach me through my email Brittanyelizabet458@gmail.com
